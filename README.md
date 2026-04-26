@@ -1,0 +1,2 @@
+# huaxiafushilishibowuguanxuanchuanhaibaotupianku
+位于辽宁省鞍山市铁西区苏宁生活广场五层华夏服饰历史博物馆的宣传海报，由ChatGPT image 2制作
